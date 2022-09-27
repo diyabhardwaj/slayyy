@@ -1,2 +1,2 @@
 # slayyy
-An example of how to make a GitHub Page website. 
+An example of how to live life to the fulliest. 
